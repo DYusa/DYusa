@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-    🎓 I have 3 degrees on anthropology, psychology and ITS so I can fight the renaissance spirits.
+    🎓 I have 3 degrees, on anthropology, psychology and ITS so I can fight the renaissance spirits.
     🔭 I’m currently working on developing my career.
     🌱 I’m currently learning more advanced parts of things.
     👯 I’m looking to collaborate on learning opportunities.
