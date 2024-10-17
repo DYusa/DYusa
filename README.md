@@ -6,6 +6,6 @@
     👯 I’m looking to collaborate on learning opportunities.
     🤔 I’m looking for help with any of above.
     💬 Ask me about why I have four degrees. 
-    📫 How to reach me: -https://www.linkedin.com/in/yusa-ece-demiral/
+    📫 How to reach me: -https://www.linkedin.com/in/yusa-ece-demiral/ or https://www.linkedin.com/in/y-ece-demiral/
     😄 Pronouns: she/ not her cause I'll never be her.
   
